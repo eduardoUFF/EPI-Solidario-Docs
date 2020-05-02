@@ -1,4 +1,4 @@
-# TERMO E CONDIÇÕES GERAIS DE USO DOS SERVIÇOS E PRODUTOS EduEHealth
+# TERMO E CONDIÇÕES GERAIS DE USO DOS SERVIÇOS E PRODUTOS EDUEHEALTH
 
 Este Termo e Condições Gerais (“Termo”) aplicam-se ao uso dos serviços oferecidos pela EduEHealth, cujos serviços respeitarão os dispositivos do presente Termo, doravante denominada EduEHealth, a PESSOA FÍSICA, maior e capaz, que tenha preenchido o Cadastro, cujos dados passam a ser parte integrante deste Termo, bem como que tenha “aceitado” eletronicamente o presente Termo e todas as suas cláusulas do mesmo ao adquirir qualquer aplicativo ou produto digital da EduEHealth, doravante denominado USUÁRIO;
 
